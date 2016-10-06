@@ -1,0 +1,53 @@
+## 1. From a quiet field
+
+Not a week after seeing that horse van for the first time, I had to shoot my kid brother square in the chest.
+
+We had a farm in Oklahoma. This was 1939, so by then the drought had done its work, and the land had beaten my parents half to death. Dad was in drink all night, and corked out in the toolshed for most of the day. Mama had one arm bent useless, and I knew it was Dad that had done it. So it was me and the kid, Willie, who had to put the sweat of our brows into the farm. We hadn't the first idea what we were doing but it was more fun than our school lessons, and we preferred eating to starving, so we stuck at it.
+
+***
+
+Before I tell you about the horse van, let me tell you about our *horse*, Chips. This horse wasn't ours, but we rented him from the local swell, Fulton Gully, so that we could plough the fields. Willie would have nothing to do with Chips, because he was a stubborn horse who would get riled at the prospect of work. Willie preferred to mooch around the field, weeding with a hoe - and that got *me* riled up, I can tell you. But it didn't matter how much I threatened Willie, he was more scared of being kicked by Chips than of a whipping from his brother, and I couldn't get him near that horse. But, as much as Willie hated Chips, he loved the other horse that Fulton Gully owned. Maybe even more than Fulton Gully did - and Fulton Gully loved that horse a lot.
+
+Fulton Gully's other horse was called Midnight Runner, because he was a damn *racehorse*. I can see why Willie loved that horse. When you saw him sauntering along a broke-up road, in a place where the crops were as brittle as chalk, where half the houses were boarded up, and the kids looked as old as grandparents - when you saw *that* horse, in *that* place, it was a kind of miracle. He had nobility, did Midnight Runner - and when I saw the kid looking at the horse, I knew that he was seeing something else entirely, something beyond the dirt track, and the hoe, and the drunk snoring in the toolshed who broke our Mama. I suppose I loved that horse too.
+
+But I had another reason for liking Midnight Runner. Our farm was close to the road, but hidden from it by a small rise, so we could hear everything that approached while we worked the fields. And we knew when Midnight Runner was approaching because his hooves hit the ground clear and hard: *tlot tlot, tlot tlot*! All the other horses in the neighbourhood seemed to slough their hooves down softly, the way me and Willie dawdled our feet on the way to school. And where Midnight Runner was, Fulton Gully would be, fat and proud and wanting to show off, his purple jacket full of apples and sugar cubes. When we heard that signature *tlot tlot*, we'd hare up and over the rise and flag down Fulton Gully, and he'd make a big show of handing over an apple and a sugar cube to each of us to give to Midnight Runner. But if we were quick with our fingers, Midnight Runner might only get of one our apples and one of our sugar cubes, and we could sit in the field afterward and eat what we stole. 
+
+The week before the horse van appeared, we weren't quick enough, and so we came away with nothing - just the sight of Midnight Runner, and a soft clap on his flank that made Fulton Gully frown. Scrambling down the rise on our way back, Willie said to me, "I wish we could just take him." I wasn't sure if he meant Midnight Runner or Fulton Gully, though I suppose it didn't make much difference.
+
+***
+
+Anyway: the horse van. We were out in the fields, Willie poking around in the wheat with his hoe, me glowering at him while I led Chips around the next plot with the plough. It was a late afternoon, a cold air, nothing to be heard out there except a few crows and the clink of our tools. And then we heard a great rattling and rumbling approach from the North. Me and the kid looked at each other. Willie had dropped his hoe already. We knew it was an engine, of course, but since our road only ever saw horses - and mostly old nags at that - we knew we had to go take a look. I dropped Chips' rein, left the horse with the plough, and we hot-footed it over the rise.
+
+I saw the vehicle bumping along the road from a distance. It was a sight, more like a house on wheels than anything. All bright chrome up the front, with the driver's cab and the cargo space done out in red and black wood, white-trimmed windows like you'd see in a mansion, and a sloping roof with a flag - a flag! - on the top. I laughed at the sight of it. But, as it pulled to a stop alongside us, I stopped laughing. One of the panels on the van was painted with the picture of a horse, and Fulton Gully was leaning a purple-coated elbow out of the near-side window.
+
+"Boys", he said. His face was wobbling with pride.
+
+"Mr Gully", I said. Willie took his hat off, but I left mine on, and I could see Fulton Gully's mouth twitch.
+
+"Where's Midnight Runner today, Mr Gully?", Willie said. I scowled at the kid, but he was oblivious. My chest was tense.
+
+"I'll show you!", Fulton Gully said, and he jumped out of the cab. "Come."
+
+We followed him round to the far side of the van and, on the way, I think Willie must have seen the picture of the horse for the first time because his face changed, for the worse.
+
+Fulton Gully opened a full-sized door in the side of the van and the smell of hay and horse came from the darkness. For a second or two, I could see nothing but the bulk of Fulton Gully, the rolls of his purple back and the shadows in front of him. And when Fulton Gully shifted aside, and my eyes adjusted a little, I could see Midnight Runner in there, his head drooping over a little wooden fence, and all the muscle and fight seemed gone from that horse.
+
+"Hop up", Fulton Gully said, "you can feed him".
+
+We went up, and I was numb while we were in the van. I took the apple and I took the sugar cube, and the whole time Fulton Gully was in there with us, watching our hands. And as we fed the horse, there wasn't anything to look at but the blackness behind him, nothing to hear but the engine still turning in front, and nothing to smell but the hay and Midnight Runner's shit. 
+
+We got out, and we stood there and watched Fulton Gully lumber himself back into the van, and then it was like Willie woke up - he hadn't spoken the whole time in the van - because he asked, all of a sudden, "Where are you taking Midnight Runner?"
+
+"For a proper run", Fulton Gully said, "Somewhere nice." And then he left.
+
+We watched the van leave and, when it was gone, Willie said "I don't mind watching the horse leave, if he's running".  We stood for a moment, in the quiet again now, hands in our empty pockets, with the crows whirling in the gray sky.
+
+And then from beyond the rise, I heard Chips make a sound, the kind of sound that you don't want to hear a horse make, and I realised that something was terribly wrong in the field. We both ran. All the way back, I thought: how long had Chips been keening for, while Fulton Gully's van made its racket? At the top of the rise, I saw what must have happened. The noise of the van had frightened Chips and he had stepped back into the plough and got himself tangled somehow. Now he was wrenching himself back and forth in panic, and making his terrible noise.
+
+"Quick", I said to Willie, because we'd both stopped for a second, "he'll break his leg". And I didn't need to add: *and we'll owe Fulton Gully a horse*.
+
+But as we were running towards Chips, I saw another silhouette coming from the direction of the farm. The noise had woken Dad, and he was walking towards Chips with a strange, halting gait. And even though he was slow, and he waltzed unevenly, he was going to reach the horse before us. I could tell he was still half-cooked, but that horse was worth more than we could afford to lose, and so I risked shouting to him, "Be careful!" He gave no sign that he had heard me, and loped onwards. 
+
+There was something unnatural about Dad in that moment. The shape of him, black against the setting sun, looked wrong. And the determined way that he approached the horse seemed familiar. *One hand on the kitchen table to support himself, as he came closer.* My stomach lurched. But then Chips stopped his keening. Dad had the horse's face in his hand, had soothed him somehow. Willie stopped running, and looked back at me in relief. And then Dad raised his right arm up, the setting sun flashed off his shotgun, he dropped the calming hand from Chips' face, and gave the horse both barrels.
+
+That night, I knew two things. The farm was ruined, finally. And that my only way out was to do to Fulton Gully what my father had done to that horse.

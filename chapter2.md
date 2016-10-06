@@ -1,0 +1,59 @@
+## 2. A soldier rides
+
+Dad butchered the horse that night but, of course, he made a mess of it because he was in drink. I hadn't the heart to make Willie clean up what was left, so I sent him to tidy the barn instead. I stood in that field for a good long time before I made myself get to the work. The crows watched me, and a pair of gray jays sat on the edge of the field, heads to one side, eyeing up the carrion. I did the necessary, but my stomach was acid by the end of it. The jays knew I was beat then and they hopped up next to me to pick on the leftovers.
+
+When I finished, I could hear a horse on the road coming from the South. Not the lazy hooves of a nag: the real *tlot tlot* of Midnight Runner, coming at a canter. At first I thought it was my imagination, Chips living again after I'd picked him from the earth. But, no, the hooves were real. The horse van was just a one-off, I thought. Willie would want to see, but I wasn't sure of my voice, so I left him in the barn rather than holler.
+
+I got to the top of the rise as the rider came round the curve from the South. It wasn't Fulton Gully, and he wasn't on Midnight Runner. It was a proper horse, though, with a brute of a man on top. He pulled up alongside me. He was in his forties, a craggy face, weathered and reddened in the sun, with a great slab of black beard. He tipped his hat backwards until it fell and, afterwards, it lay hanging from a cord against his fur tunic.
+
+He spat, and stared at my bloody clothes and hands. "By the looks of you, the rabbit you fought must of come close to winning".
+
+Well, I didn't like that, because I was strong for my age, and he surely knew it.
+
+"It was a horse", I said, and I gave the jugular of his beast a long look, turning my body to show him the knife at my belt. 
+
+That made him very grave. "Do you think, boy, that because I was careless enough to lose a hand, I couldn't shoot you through the eyeball with the one I got left?"
+
+The truth is, I didn't realise that he only had one hand until he raised up his stump and showed me the reins knotted round them. And then, with one movement, he whipped the stump *down*, unknotting the rein, and whipped his other arm *up*, and he had a gun in his hand.
+
+I knew when I was beaten, and I shifted my body round so the knife was out of sight. "It was a horse", I repeated, "But your horse is a sight bigger".
+
+He nodded at that and, as quick as it came out, the gun was gone. Save for his face, the man was almost all black. The animal-fur cloak, the boots, the beard, his horse: all black. But when he moved, I saw flashes of metal come and then go. The plating of his Colt shone in its holster.  He had medals pinned to his chest and, when his cloak shifted, I could see their burnish and the faded service ribbons. He had a gold tooth that flinted when he spoke. Those flashes seemed to come from a void. He set me on edge, that man. But I kept right on talking to him.
+
+"What's your name, boy?", he asked me.
+
+"Joe", I said.
+
+"Nice to meet you, Lucky Joe", he said to me, with his eyes hard on mine.
+
+"Just Joe", I said to him.
+
+"I drew my gun on you, and you ain't dead. You're not two feet away from me, covered in blood, and you ain't dead. You seem the kind of boy who should be pleased at what happenstance has brung his way, Lucky Joe."
+
+I shrugged at him, and he seemed to take this as assent.
+
+"They call me Randall Wragge", he said. There was an arrogant gravel in his voice, and I took that to mean he didn't care if I believed him or not. "Now, Lucky Joe, tell me: you know a man named Fulton Gully? Tomorrow I expect to meet him on this very road, riding a very fine horse."
+
+The way that this Randall Wragge was talking - so *open* - confirmed what I already half-knew: the man was mostly devil. But I couldn't keep from conversing with him. Now I like to tell myself that I kept on with Randall Wragge because the last bit of angel left me the day before, when I watched my father shoot that horse clean through the head. But maybe that isn't the truth of it, maybe I'd been waiting for the devil to ride up this whole time.   
+
+"Yessir", I said, "I know Fulton Gully". And I was thinking, by then, that me owing Fulton Gully a horse might not be such a problem if this Randall Wragge caught up to him first.
+
+Randall Wragge nodded, and then he looked at the blood on my clothes again, and pointed his chin at the rise behind me. "And, it seems to me, that you must have *come* from somewhere, Lucky Joe. Am I right? Someplace where you're going to wash those clothes. Someplace close by. Someplace that I can't see from the road?"
+
+I nodded and then, before Randall Wragge could start up again, I said, "You're not going to meet Fulton Gully on no horse. They'll both come by here, you're right about that. But Fulton Gully won't be riding no horse."
+
+Randall Wragge's eyes lit up with a kind of fury at that.
+
+But I carried on. "And he won't stop on the road for you neither, Mr Wragge, he's suspicious like". I stopped for a second because my mouth was dry, and because I thought it polite to give Randall Wragge a chance to shoot me. And, when he didn't, I carried on. "But Fulton Gully will stop for me. He'll stop for me, if I ask him to."
+
+And after I said that, something changed in Randall Wragge's attitude toward me. I wasn't just a kid he was toying with on the side of the road anymore.
+
+"Show me this place you got", he said. I guessed it was the closest he could get to a respectful tone.
+
+When we got to the top of the rise, Willie was standing in the empty field, poking with his shoe at the stains that Dad's butchering had left. The sun was bright in the sky and, when I closed my eyes for a second, all I could see was red.
+
+I could hear Randall Wragge grunting in satisfaction.
+
+"I could make a thing or two happen here", he said. 
+
+And, as I listened to him speak, all I could think about was getting Randall Wragge's Colt off his hip and into my hands.
