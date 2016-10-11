@@ -1,3 +1,20 @@
+--- 
+title: "The Horse Van"
+author: "Jack Lord"
+cover-image: "img/horse-van-cover-2.png"
+site: bookdown::bookdown_site
+output: bookdown::gitbook
+documentclass: book
+link-citations: yes
+description: "A book about a horse"
+---
+
+# Author's note {-}
+
+```{r, echo=FALSE}
+knitr::include_graphics("img/horse-van-cover-2.png")
+```
+
 This book is not a work of fiction. Everything that you will read in these pages is based on archival research. The people, places and times have been switched around some, but they are real. I did not change much: a few names, the textures of the earth, the tint of the sky, the precise words chosen and the precise moment those words were spoken. Details, only.
 
 But, still, as a historian I have the power to go back and alter past events. That power comes not from lying, exactly, but from *finessing*. Fill in enough unknown details of the past, or smooth off enough rough edges, and a new interpretation of events starts to emerge: mine. 
