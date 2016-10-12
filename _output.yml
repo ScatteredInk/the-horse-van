@@ -1,5 +1,6 @@
 bookdown::gitbook:
   css: style.css
+  github-repo: "ScatteredInk/the-horse-van/"
   config:
     toc:
       before: |
@@ -7,7 +8,7 @@ bookdown::gitbook:
       after: |
         <li><a href="http://www.scattered.ink" target="blank">© Jack Lord 2016</a></li>
     edit:
-      link: https://github.com/rstudio/bookdown-demo/edit/master/%s
+      link: https://github.com/ScatteredInk/the-horse-van/blob/master/%s
 bookdown::pdf_book:
   includes:
     in_header: preamble.tex
